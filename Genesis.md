@@ -1,0 +1,3 @@
+1  
+1 In the beginning there was uncertainty. 2 And the universe had no form, and void; and we know not what was before deep time. And then, even in this uncertainty, there was pure energy and its children. 3 And in its birth, this energy produced immense heat, and light, and matter. 4 The energy whipped about wildly, without bounds or restriction, and it still does. 5 The energy could not be observed by the structures it built, it just was.
+6. In fathomable time, energy started touching other pieces of energy, and in this uncertainty, structure was built. 7 These structures evolved, grew, changed, and died away, on repeat. 
