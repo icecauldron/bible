@@ -8,4 +8,6 @@
 
 
 2  
-1
+1 Thus energy within you is the heavens and is part of the earth and original energy of the universe. 2 And so this is how all was made. 3 And all of it is structured, and random, everchanging, and good.  
+4 There are generations and generations of creation and death and creation, 5 and every plant and creature has come and gone in its time. 6 Rivers have roved, matured and rejuvenated the land and eventually become one with the ocean. 7 On Earth, ancestral vertebrates were born in the ocean. 8 From the before the initial violence of this world - meteorite bombardment, magma oceans, and planetary catastrophy, energy had created Eden. 9 This world is filled with gardens with all kinds of beautiful trees and fruits. Some of these trees bear fruit that man may eat and others provide food for other creatures. These gifts are marks of uncertainty and adaptation and change.  
+10 Out of this quasi-spherical Eden, rivers born from the veins of mountains and the condensed matter in the ocean and sky eroded the banks of the shifting Earth, transported sediment to the opposite side of the world, and continue the legacy of change from the original uncertainty.
