@@ -14,5 +14,6 @@
 18 Man has never been alone. 19 Every beast of the field, every fowl of the air, every water breather, and every human is connected to one another through the original energy, and it is good. 20 These creatures of structure and connection are nameless, for each one is a a new cycle of all that came before it. 21 Each creature adapts in the next rhythm of uncertainty and changes form again and again. Anew. 22 All that is in man - elements, atoms, and cells, is made of the original energy, as are all the creatures, trees, rocks, and sun. 23 All of these are of one another, electron to electron, proton to proton: they are called energy since they are of the same origin. 24 They are of one universal flesh. 25 Everything is naked, and fragile, and not to be shameful, for it is all good.  
 
 
-3  
+3 (09/12/2021)  
+1 All creatures desire survival due to the nature of the original uncertainty. One may ask themselves, "Which direction should I choose? What will be the outcome of one or the other?" 2 The responsive voice inside each creature 
 
