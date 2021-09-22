@@ -55,4 +55,14 @@ and are connected to one another.
 7  (09/20/2021)
 1 If you believe yourself to be other or different than others, you will shut yourself off from your household and all within your generation. 2 You will take with you the objects and thoughts that make you feel safe, though they are all connected to that which you reject. 3 To feel like you are surviving you will block out that which hurts and keep that which appears to be clean and comforting. 4 Even having the things you want, you will still experience rain, for all is part of the original uncertainty. 5 All that you hold dear and all that you don't, which is good and complete in in all its forms, will always be and also cease to be as whatever energy it takes.  
 6 It pains me too, that my children, lovers, family, and friends will do the same. 7 We shall pick from the offerings of the world around us and turn our eyes from those that are deemed contentious. 8 The rains will come to pass and the offerings we thought we accepted will be replaced by new offerings that we have yet to learn of. 9 And we will learn, and build more structures from the energy that we are connected to, 10 and we will learn again, as is the repetition of the energetic cycle.  
-11 The waters will prevail - they will erode all surfaces and carry the debris downstream to another place to be deposited for immediate or later use. 12 The rain will give life and death to all that moved beneath it: every bird, cattle, beast, creeping thing, and every man. 13 And it cannot be stopped, and this is good.
+11 The waters will prevail - they will erode all surfaces and carry the debris downstream to another place to be deposited for immediate or later use. 12 The rain will give life and death to all that moved beneath it: every bird, cattle, beast, creeping thing, and every man. 13 And it cannot be stopped, and this is good.  
+
+8 (09/21/2021)  
+1 Every living thing is with you, breathing, existing, moving, connecting. 2 The plants understand inevidible change and rebirth.  The frogs understand inevidible change and rebirth.  The bees understand inevidible change and rebirth.  The birds understand inevidible change and rebirth.  The fish understand inevidible change and rebirth.  Man understand inevidible change and rebirth. 3 Before your memory, you were within something else, someone else. They held a life, much like your own. They smiled. And cried. 4 And bled, and before that, the same - again. 4 The mountain you may find within yourself, should you look far enough is monumentous. And the mountain that you are building, is monumentous. 5 It will be passed on every moment. 6 Everything in the universe is made up of matter and energy. 7 It can be transferred, and converted in form, but neither created nor destroyed any more than ever has been.  
+
+8 “While the earth remains,  
+Seedtime and harvest,  
+Cold and heat,  
+Winter and summer,  
+And day and night  
+Shall not cease.”  
