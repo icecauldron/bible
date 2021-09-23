@@ -66,3 +66,6 @@ Cold and heat,
 Winter and summer,  
 And day and night  
 Shall not cease.”  
+
+9 (09/22/2021)  
+1 The universe is a blessing, and you are divinely succinct. So, be fruitful and fill the earth with all that moves you. 2 And let there be no fear between you and any other beast of the earth or bird of the air or any creeping thing or fish in the sea. You are all holding hands and hooves and wings and fins together. 3 You are food for one another. A symbiosis of married energies, acknowledgement, and familiarity. 4 You will eat on anothers flesh and supplement on one anothers blood. 5 You will take many organisms lives, both plant and animal, but you will also be consumed by them in the end. 6 The way energy of the universe requires the life of man to be tranferred and transposed like any other object or matter.
