@@ -67,10 +67,13 @@ Winter and summer,
 And day and night  
 Shall not cease.”  
 
-9 (09/22/2021)  
+**9** (09/22/2021)  
 1 The universe is a blessing, and you are divinely succinct. So, be fruitful and fill the earth with all that moves you. 2 And let there be no fear between you and any other beast of the earth or bird of the air or any creeping thing or fish in the sea. You are all holding hands and hooves and wings and fins together. 3 You are food for one another. A symbiosis of married energies, acknowledgement, and familiarity. 4 You will eat on anothers flesh and supplement on one anothers blood. 5 You will take many organisms lives, both plant and animal, but you will also be consumed by them in the end. 6 The way energy of the universe requires the life of man to be tranferred and transposed like any other object or matter.  
 
 (09/24/2021)  
 7 Man was made in uncertainty's image, after everything that passed before its' likeness, so be fruitful and multiply with uncertain intention in whatever form of energy you take, for it is all good. 8 Energy's covenant with you is eternal and our covenant with everything we touch is also thus - 9 with your descendents and those of the birds, the cattle, and every beast of earth near and far. 10 And again, here, we establish covenant with ourselves and each other.  
 11 Speak to yourself and your energy. 12 This _is_ the sign of the covenant which is secured between me,  you, and every living creature that _is_ with you, for perpetual generations: 13 Look, see the prisms of reflected light in the clouds, it shall ever be a sign of the covenant between all things. 14 Observe the sky and its billions and billions of stars, it will be proof of the covenant between all forms of energy. 15 Catch each day, and regard the movement of all that is both new and as old as deep time. 16 Take in each birth and death, for it shall ever be a sign of the covenant given to us by the first uncertainty. 17 Look forth and remember the everlasting covenant between you and me and all things unseen and seen.  
-18 From the first and only covenant, the whole universe was populated, 19 which was colonized by change and possibility. Violence. Nakedness. Strife. Structures anew. Broken networks. Rebuilt fabrics. Endlessness. 20 Here you dwell in the domicile of earth, but your energy is far larger than you can conceive.
+18 From the first and only covenant, the whole universe was populated, 19 which was colonized by change and possibility. Violence. Nakedness. Strife. Structures anew. Broken networks. Rebuilt fabrics. Endlessness. 20 Here you dwell in the domicile of earth, but your energy is far larger than you can conceive.  
+
+**10**
+1 This is the geneology of you. 2 Energy. 3 More energy. 4 Uncertainty. 4 Connection. 5. Anisotropy. 6 Expansion. 7 Movement. 8 Redefined paradigms. 9 Coelescence 10. Separation - by survival, language, families, and nations. 11 But you are of the same nation, same family, same base language, and same energy as all before, behind, above, beneath, and beside you.
