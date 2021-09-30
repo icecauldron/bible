@@ -77,3 +77,6 @@ Shall not cease.”
 
 **10**
 1 This is the geneology of you. 2 Energy. 3 More energy. 4 Uncertainty. 4 Connection. 5. Anisotropy. 6 Expansion. 7 Movement. 8 Redefined paradigms. 9 Coelescence 10. Separation - by survival, language, families, and nations. 11 But you are of the same nation, same family, same base language, and same energy as all before, behind, above, beneath, and beside you.
+
+**11** (09/28/2021)  
+1 The whole universe has always had one language and one speech. 2 It is only when networks divided and grew, stretching over billions of fathoms of space and millenia, did a perception of difference form. Structures on top of structures that eventually hid the first syntax. 3 From one infinitesimal point to another, there has been continuous building and restructuring and growth and change. This uncertainty has built our homes on this earth and in our minds. 4 Without prompting, energy insisted that took the elements of the universe and built Eden, which we dwell and contribute to every part of. 
