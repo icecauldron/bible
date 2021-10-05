@@ -82,3 +82,19 @@ Shall not cease.”
 1 The whole universe has always had one language and one speech. 2 It is only when networks divided, split off and expanded, stretching over billions of fathoms of space and millenia, did a conscious perception of difference form. Structures on top of structures eventually hid the first syntax. 3 From one infinitesimal point to another, there has been continuous building and restructuring and growth and change. This uncertainty has built our homes on this earth and in our minds. 4 Without prompting, energy , which birthed the elements of the universe, built Eden, which we dwell and contribute to every part of.  
 (10/05/2021) 5 You have and will contribute to the buildings of cities, and your children will see the results of your work. 6 And all things, despite their differences, are one and they all have a language to use to communicate. Now is still just the beginning. And nothing you or anything conceived is impossible. 7 Come, let us not quarrel and confuse one another over subtle differences in our speech and movement. 8 Let not our scattering over the surface of the entire earth keep us from loving and hurting together in building this nameless city. 9 For we are not singularly builing a city, or planet, or galaxy, or universe but a vast collection of connectivity and change.  
 
+**12**  
+1 Now, this life of yours is fragile. Everything is fragile and finite and which is what makes all unique and beautiful. Every moment anew. Every organism is being born, and blooming, and then dying away. All at once. Every rock is crumbling, compressing, crystallizing, and moving. All moves. All changes. All energy is dynamically resolved to pass by quickly through its powdery, pastel dawns and ablazely desperate dusks.  
+
+So, leave your country,  
+and your relatives,  
+and your house,  
+and go see the land which regards you.  
+2 The world welcomes your eager eyes,  
+and asks for nothing.  
+Your explorations will bless you abundantly,  
+and you will be beheld by all you behold as well,  
+and you shall be a blessing as well,  
+3 The universe blesses your existence,  
+for it was so hard to get to you,
+and all the extensions and families of you.  
+
